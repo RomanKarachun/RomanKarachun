@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Roman Karachun
+- 🌱 I’m currently learning Python
+- 📫 How to reach me: romankarachun9@gmail.com
