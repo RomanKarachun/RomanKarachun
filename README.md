@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Roman Karachun
 - 📅 I’m 18 yo
 - 🏠 I’m from Grodno, Belarus
-- 📈 I’m currently learning Python
+- 💙 Python
 - 📪 How to reach me: 
 > GMAIL: romankarachun9@gmail.com
 > 
