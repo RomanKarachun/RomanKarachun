@@ -7,6 +7,6 @@
 💙 Python
 
 📪 How to reach me: 
-> GMAIL: romankarachun9@gmail.com
-> 
-> VK: https://vk.com/romroom9
+- GMAIL: romankarachun9@gmail.com
+ 
+- VK: https://vk.com/romroom9
