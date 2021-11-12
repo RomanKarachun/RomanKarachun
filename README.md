@@ -11,4 +11,4 @@
 
 - Telegram: @romroom9
 
-- VK: https://vk.com/romroom9
+- VK: vk.com/romroom9
