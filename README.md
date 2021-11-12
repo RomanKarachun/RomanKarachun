@@ -8,5 +8,7 @@
 
 📪 How to reach me: 
 - GMAIL: romankarachun9@gmail.com
- 
+
+- Telegram: @romroom9
+
 - VK: https://vk.com/romroom9
